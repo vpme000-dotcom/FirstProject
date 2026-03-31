@@ -24,6 +24,3 @@
 
 
 
-Quotes from Halo games:
-<br>
-<br>
